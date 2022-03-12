@@ -9,4 +9,10 @@
 
 # Fotoğraflar
 
-- Yakın zamanda ekliyorum...
+![image](https://cdn.discordapp.com/attachments/951221180881334363/951221575057805372/unknown-44.png)
+![image](https://cdn.discordapp.com/attachments/951221180881334363/951221575275905095/unknown-41.png)
+![image](https://cdn.discordapp.com/attachments/951221180881334363/951221575481446440/unknown-33.png)
+![image](https://cdn.discordapp.com/attachments/951221180881334363/951221575963799563/unknown-38.png)
+![image](https://cdn.discordapp.com/attachments/951221180881334363/951221576257384518/unknown-40.png)
+![image](https://cdn.discordapp.com/attachments/942863074371727460/952139046040264714/unknown.png)
+![image](https://cdn.discordapp.com/attachments/942863074371727460/952139213363626014/unknown.png)
